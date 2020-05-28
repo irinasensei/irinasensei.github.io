@@ -1,2 +1,0 @@
-# irinasensei.github.io
-Project
